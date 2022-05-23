@@ -1,3 +1,3 @@
 # CV_Image:
 
-![Resume](https://user-images.githubusercontent.com/99129061/156877156-1c423c3c-ddf9-471b-96a7-c0c51a281fe9.png)
+![Resume_](https://user-images.githubusercontent.com/99129061/169774497-58622076-d744-46ac-9a21-39d233cf8382.png)
